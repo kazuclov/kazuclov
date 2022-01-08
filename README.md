@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @kazuclov
+- 👀 I’m interested in games!
+- 📫 How to reach me: @scarazushii on insta!
